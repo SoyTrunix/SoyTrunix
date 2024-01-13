@@ -1,2 +1,4 @@
-Hola, yo soy Trunix soy programador y youtuber
-YT: youtube.com/@SoyTrunix
+HOLAP
+EDAD: 14 años
+PAÍS: URUGUAY
+MIS REDES SOCIALES: https://linktr.ee/soytrunix
